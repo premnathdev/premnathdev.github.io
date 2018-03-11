@@ -1,2 +1,0 @@
-# premnath developer account
-   
